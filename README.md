@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Projects Related To My Interests
 - 📫 How to reach me 
 -     Email::amanrajkharwat@gmail.com
--     Linkdn::
+-     Linkdn::https://www.linkedin.com/in/amanraj1318/
 -     Contact::7320918799
 
 <!---
